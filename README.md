@@ -1,3 +1,4 @@
-wip ok?
+`wip. this is better on desktop.`
 
-⠀⠀⠀⠀⠀⠀<img align="center" width="800" height="800" alt="Untitled158_20260630181635" src="https://github.com/user-attachments/assets/2624dfe4-2ff7-4879-a75c-c874552430d3" />
+⠀⠀⠀⠀⠀⠀<img width="800" height="800" alt="Untitled158_20260630182607" src="https://github.com/user-attachments/assets/078d40be-105e-4eee-b379-b4a612c09b1b" />
+
